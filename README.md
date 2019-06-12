@@ -4,3 +4,4 @@ Am christopher
 am here becuase i love coding
 i believe my journey will be smooth
 thanks
+Wow, its so amazing how this works
